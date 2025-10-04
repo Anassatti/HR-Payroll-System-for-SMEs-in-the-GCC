@@ -93,3 +93,5 @@ HR Automation, GCC HR Software, HRMS UAE, Payroll Saudi Arabia
 
 <img width="1367" height="850" alt="image" src="https://github.com/user-attachments/assets/4b73dff7-c089-4841-8901-811e4bd1488b" />
 
+<img width="647" height="812" alt="image" src="https://github.com/user-attachments/assets/f05fbd3c-ea63-412f-91c0-5213b042e781" />
+
